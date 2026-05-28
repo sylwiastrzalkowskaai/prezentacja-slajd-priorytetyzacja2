@@ -1,0 +1,1 @@
+# prezentacja-slajd-priorytetyzacja2
